@@ -9,4 +9,4 @@ front: "/assets/christmascard.png"
 
 But seriously, thank you for being one of my first college friends this year, and my Animal Crossing partner-in-crime 🙏🏼
 
-Keep being awesome! :) and Merry Christmas. 💙
+Keep being awesome! :) and Merry Christmas. 💙.
